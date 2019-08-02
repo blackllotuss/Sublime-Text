@@ -1,2 +1,2 @@
 # my-first-site
-This site is my first project so ı am so excited:)
+This site is my first project so ı am so happy:)
